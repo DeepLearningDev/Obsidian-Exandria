@@ -1,0 +1,25 @@
+- Gorwick convinces the training overseer to bring some npcs
+- lisa is voluntold
+- mesmir went and got drunk at the bar
+- klud is being muscle for rich kid
+- klud agreed to get the money back 5k for 500g reward
+- klud won the 5k back gambling against 'silk'
+- klud convinced the young lord to take 1k
+- klud gets 4k and heads to bar where mesmir is getting drunk
+- azalea investigates and goes to black bastille and checks out the cell
+- she finds there is a minor illusion and falls 3 stories into the moat
+- az goes through sewer and interviews priestess at church
+- az goes to docks but comes up inconclusive and heads to bar
+- gorwick takes the trainees Neris Dawnhand, Brother Hadrik, Kara “Ironjaw” Vess, Lisa Gray to the fields and they take out bugs and he teaches them
+- gorwick treats them to a meal and drink and tells them about their adventures thus far
+- neris tells gorwick that he will talk to his father who has a trading ship and he will talk to them about passage for the party
+- they get drunk and klud, mes, and boblin do spice
+- they take on a quest to retrieve a stolen package
+- they interrogate and break this guys legs
+- they end up finding the Emon Strangler and turn him in after castrating him
+- they track down the parcel thieves and attack them
+- az flies in through the eye hole after poking him in the eye
+- they knock them all out and retrieve the parcel
+- they turn the parcel in and get 5 healing pots
+- az gets 1500 gold for catching the strangler and rep with the guards
+- they get notoriety with the underground

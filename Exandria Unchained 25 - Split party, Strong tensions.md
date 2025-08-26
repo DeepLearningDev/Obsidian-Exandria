@@ -1,0 +1,33 @@
+- Got letter from Casino owner (ignored)
+- Followed clasp member down into sewer
+- Mesmir, Gorwick, Klud, and Boblin agreed to take package for clasp
+- tiefling guy from westruun
+- klud managed to see the way to the teleport circle
+- they get teleported to emon
+- they hand package over
+- they went to adventurer guild and met carol
+- they went to temple district
+- met up with Lawrence and azalea
+- went to temple of tyr
+- got healed up some to relieve fatigue and gorwick did sparing with I forgor
+- gorwick healed lisa and then was recognized as someone who has died and met tyr
+- gorwick went and talked to bishop of the church in emon
+- azalea and klud went and bought an amulet to stop the scrying and learned the church district is protected against scrying
+- klud and azalea went to brothel
+- klud made friends with the last two races he needed to to awaken his relic
+- Klud dream about ring awakening
+- Christine dream "heart of glass"
+- Gorwick dream about tyr
+
+## Need to do:
+- Write up stuff about Emon
+- Write up stuff about guild
+- Write up stuff about Relics that I have so far
+- Write up stuff about deities
+- Compile list of magical items with links
+- Write up about deck of wonders
+- Write up about each character
+- Make some pages about the NPCs so far
+- Come up with some quests and also include quest structure
+- Type up reputation system
+- Type up my stuff about guilds
